@@ -1,1 +1,0 @@
-Liquor is highly practically worshipped by nearly every culture that has access to it.
